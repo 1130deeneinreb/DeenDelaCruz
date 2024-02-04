@@ -1,4 +1,4 @@
-# DeenDelaCruz
+# Deen Dela Cruz
 
 # About Me 😀
 
